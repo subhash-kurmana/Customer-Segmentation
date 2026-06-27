@@ -88,11 +88,6 @@ The emphasis was placed on analytical interpretation and identifying potential b
 
 ---
 
-## Author
 
-**Monika**
-
-- LinkedIn: [Monikanahadiya](https://www.linkedin.com/in/monika-nahadiya-a99558289/)
-- Email: monikanahadiya@gmail.com
 
 ---
